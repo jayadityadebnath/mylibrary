@@ -10,6 +10,9 @@ they pulled my shorts, and then they saw a large cut down my knee to my feet. Su
 when it screeched to a halt I got a better look at the person inside. I realized it was my friend, Kai, who is a super-powered fire ninja.
 He asked me if I wanted to go to our Ninja laboratory (it's where we make dangerous poisons such as metabolism which makes you say the truth
 even if you want to tell lies.) I said sure, only if you've brought some tiny vials of medical potion such as Terblo (Terblo stops the blood from coming out, and if you drink it, after half an hour it gives you a shock and then it makes your skin cover the area of the wound). He said of course, actually I have a huge vial of Terblo.  
-Alright I said jus-ju-just put it on, Kai put it 
+Alright I said jus-ju-just put it on, Kai put it on and then I felt a strange sizzle in my skin (it was like there was fire on my skin you know).
+Just a minute after I felt the strange sizzle, something stomped hardly on the creaky floorboards, every thing was still and cold as well.
+it held a arrow made of obsidian and on the right was a knife made of wood I looked back and saw someones face I could not recgnise 
+
 
 

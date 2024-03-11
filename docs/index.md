@@ -10,7 +10,7 @@ I wanted to get out so I jumped down the spikes. When my feet touched the ground
 they pulled my shorts, and then they saw a large cut down my knee to my feet. Suddenly something broke our wall and came into our house
 when it screeched to a halt I got a better look at the person inside. I realized it was my friend, Kai, who is a super-powered fire ninja.
 He asked me if I wanted to go to our Ninja laboratory (it's where we make dangerous poisons such as metabolism which makes you say the truth
-even if you want to tell lies.) I said sure, only if you've brought some tiny vials of medical potion such as Terblo (Terblo stops the blood from coming out, and if you drink it, after half an hour it gives you a shock and then it makes your skin cover the area of the wound). He said of course, actually I have a huge vial of Terblo.
+even if you want to tell lies.) I said sure, only if you've brought some tiny vials of medical potion such as Terblo (Terblo stops the blood from coming out, and if you drink it, after half an hour it gives you a shock and then it makes your skin cover the area of the wound). He said of course, actually I have a huge vial of Terblo.  
 Alright I said jus-ju-just put it on, Kai put it 
 
 

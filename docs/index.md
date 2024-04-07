@@ -12,7 +12,10 @@ He asked me if I wanted to go to our Ninja laboratory (it's where we make danger
 even if you want to tell lies.) I said sure, only if you've brought some tiny vials of medical potion such as Terblo (Terblo stops the blood from coming out, and if you drink it, after half an hour it gives you a shock and then it makes your skin cover the area of the wound). He said of course, actually I have a huge vial of Terblo.  
 Alright I said jus-ju-just put it on, Kai put it on and then I felt a strange sizzle in my skin (it was like there was fire on my skin you know).
 Just a minute after I felt the strange sizzle, something stomped hardly on the creaky floorboards, every thing was still and cold as well.
-it held a arrow made of obsidian and on the right was a knife made of wood I looked back and saw someones face I could not recgnise 
+it held a arrow made of obsidian and on the right was a knife made of wood I looked back and saw someones face I could not recgnise. When it turned around
+it's face looked like no other, but then the fearless Ninjas stepped up to the challange they punched and kept on kicking and kicking and kicking
+
+
 
 
 

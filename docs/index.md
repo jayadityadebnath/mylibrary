@@ -15,7 +15,10 @@ Just a minute after I felt the strange sizzle, something stomped hardly on the c
 it held a arrow made of obsidian and on the right was a knife made of wood I looked back and saw someones face I could not recgnise. When it turned around
 it's face looked like no other, but then the fearless Ninjas stepped up to the challange they punched and kept on kicking and kicking and kicking
 but it was up to no use the Ninjas only made it angrier and angrier and angrier. Kai started to use his fire power against it's ice power after that I tried
-to help him with my lightening powers only then the monster started to sqeal and scream
+to help him with my lightening powers only then the monster started to sqeal and scream.Finally the monster thrashed down to the floor and landed with a big loud thump!!                  
+
+
+                                Moral:Teamwork makes the dreamwork
 
 
 
